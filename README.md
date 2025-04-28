@@ -54,7 +54,7 @@ Further AI-driven analysis will enhance pattern discovery, clustering, and predi
 ## Connect with Me
 
 - **Portfolio:** [maazhussain.ca](https://maazhussain.ca)
-- **LinkedIn:** [linkedin.com/in/your-linkedin-profile](https://linkedin.com/in/your-linkedin-profile)
+- **LinkedIn:** [https://www.linkedin.com/in/maaz-hussain-/)
 
 ---
 
